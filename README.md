@@ -157,7 +157,7 @@ The focus is on building a structured, scalable, and robust system.
 
 For collaboration or inquiries:
 
-[Your Email]
+aaroninplayz@gmail.com
 
 ---
 
